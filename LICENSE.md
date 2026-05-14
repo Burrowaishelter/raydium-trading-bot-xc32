@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with trader joe trading bot quantitative Strategy | DEX-arbitrage & sniper-trades, the #1 trader joe trading bot. Includes DEX-arbitrage and sniper-trades for
 
 
 
